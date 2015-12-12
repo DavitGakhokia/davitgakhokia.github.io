@@ -1,2 +1,0 @@
-# davitgakhokia.github.io
-gkjlknk
